@@ -1,1 +1,1 @@
-![Srat](scat.webp)
+![Srat](scrat.webp)
